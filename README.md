@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arnakoeur
 - 👀 I’m interested in ... the creation of the entire milky way galaxy
 - 🌱 I’m currently learning ... to love myself
-- 💞️ I’m looking to collaborate on ... peace and toothbrushes
+- 💞️ I’m looking to collaborate on ... peace and obscure dance moves
 - 📫 How to reach me ... send me a messenger dove
 
 <!---
